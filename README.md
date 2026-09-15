@@ -1,1 +1,0 @@
-# smoky-mtn-property
